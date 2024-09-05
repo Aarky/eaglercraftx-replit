@@ -3,8 +3,6 @@
 
 Hi everyone!
 
-First, please go buy Minecraft.
-
 
 ---
 
